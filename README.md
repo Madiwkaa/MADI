@@ -1,1 +1,1 @@
-# MADI/labka.html/labka2.html/фрейм веб.html/форма веб.html/madi.css/AWIZ2056.jpg/HDFE6953.jpg
+# MADI/labka/labka2/фрейм веб/форма веб/AWIZ2056/HDFE6953
